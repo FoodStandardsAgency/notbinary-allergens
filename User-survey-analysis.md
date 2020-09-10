@@ -1,1 +1,0 @@
-A full analysis of the online user survey is available to view [here](uploads/Survey_1.pdf)

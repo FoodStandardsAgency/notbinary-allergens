@@ -1,1 +1,0 @@
-You can find all the weeknotes for this Discovery and all the Notbinary discoveries [here](https://github.com/notbinary/fsa-weeknotes/wiki)
