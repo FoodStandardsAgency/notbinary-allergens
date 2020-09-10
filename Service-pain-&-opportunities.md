@@ -1,0 +1,7 @@
+## Pain
+
+- Bullet
+
+## Opportunities 
+
+- Bullet
